@@ -1,7 +1,7 @@
 - 👋 h1, 1’m @bade3
 - 👀 1’m 1nterested 1n art
 - 🌱 1’m current1y 1earn1ng art
-- 💞️ 1’m 1ook1ng t0 c011aborate 0n art
+- 💞️ 1’m 1ook1ng t0 c011ab0rate 0n art
 - 📫 h0w t0 reach me mohamméd éissa#0594 d1sc0rd
 
 <!---
